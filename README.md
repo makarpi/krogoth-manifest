@@ -1,0 +1,1 @@
+krogoth - manifest
